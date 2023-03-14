@@ -1,1 +1,1 @@
-Joshua osawmonyi
+Joshua Osawmonyi
